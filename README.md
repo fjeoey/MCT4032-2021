@@ -15,6 +15,6 @@ We will meet every other Monday 14.15 - 16.00 for project updates. These Mondays
 
 29.11: 14.15 - 16.00 final update
 
-06.12: 14.15 - 16.00 EXAM PRESENTATIONS
+06.12: 09.15 - 11.00 EXAM PRESENTATIONS
 
 20.12: deadline group report
